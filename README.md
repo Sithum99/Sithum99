@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @Sithum99
+- 👀 I’m interested in Programming
+- 🌱 I’m currently learning Software Engineering at @SLIIT
+- 📫 How to reach me sithum.kavinda25@gmail.com / +94719994659
